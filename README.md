@@ -1,1 +1,0 @@
-# jaolmudale.github.io
